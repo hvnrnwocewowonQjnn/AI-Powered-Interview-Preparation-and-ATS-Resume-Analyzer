@@ -1,1 +1,0 @@
-# AI-Powered-Interview-Preparation-and-ATS-Resume-Analyzer
